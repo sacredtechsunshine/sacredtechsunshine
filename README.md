@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects! Beginner friendly...
 - 📫 How to reach me @aprilsnshine on all platforms...
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I have a odcast called Unrestricked Thinkng!
+- ⚡ Fun fact: I have a podcast called Unrestricked Thinkng!
 
 <!---
 sacredtechsunshine/sacredtechsunshine is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
